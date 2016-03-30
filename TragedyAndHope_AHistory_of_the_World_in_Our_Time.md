@@ -225,8 +225,6 @@ to the Post Office and mailed the final draft to his publisher in New York City.
 was somewhat overwhelmed and perhaps even inhibited by the scholarly treatise. The 
 last thing he wanted to do was to read the huge draft. He knew and trusted the professor. 
 
-
-
 After all, he was one of the leading scholars in the western world. They had been 
 acquaintances for several years. He had already signed an agreement to publish the book 
 before it was finished. He had read several chapters of the early draft. They were boring, 
@@ -271,8 +269,6 @@ international exchanges. Almost all of this power was exercised by the personal 
 and prestige of men who had demonstrated their ability in the past to bring off successful 
 financial coupes, to keep their word, to remain cool in a crisis, and to share their winning 
 opportunities with their associates." 
-
-
 
 I could hardly believe what I was reading. I sat in the bookstore and read until closing 
 time. I then bought the book and went home where I read almost all night. For the next 
@@ -320,8 +316,6 @@ fewer and fewer men and women. This wealth is now being used to construct and
 maintain the World Empire that is in the last stages of development. The World Empire is 
 partly visible and partly invisible today. 
 
-
-
 The chief architects of this new World Empire are planning another war — World War 
 III — to eliminate any vestiges of political, economic or religious freedom from the face of 
 the earth. They will then completely control the earth, and its natural resources. The 
@@ -368,9 +362,6 @@ The above professor was named Carroll Quigley and the book he wrote was entitled
 Tragedy and Hope: A History of the World in Our Time. It was published in 1966 and is 
 clearly one of the most important books ever written. Professor Quigley was an 
 extraordinarily gifted historian and geo-political analyst. The insights and information 
-
-
-
 contained in his massive study open the door to a true understanding of world history in 
 the nineteenth and twentieth centuries. In fact, if the scholar, student, businessman, 
 businesswoman, government official and general reader has not thoroughly studied 
@@ -417,8 +408,6 @@ the Western intellectual tradition anchored in Augustine, Abelard, and Aquinas t
 seemed to have so much more richness and depth than contemporary liberalism. We 
 became very close in a treasured friendship that was terminated only by his death. 
 
-
-
 "In the course of rereading The Evolution of Civilizations I was reminded of the 
 intensity of our dialogue. In Quigley's view, which I shared, our age was one of 
 irrationality. That spring we talked about what career decisions I should make. At his 
@@ -463,10 +452,7 @@ disintegrating world.
 
 "Superb teacher Quigley was, and could justify a lifetime of prodigious work on that 
 success alone. But ultimately he was more. To me he was a figure — he would scoff at 
-this — like Augustine, Abelard, and Aquinas, searching for the truth through examination 
-
-
-
+this — like Augustine, Abelard, and Aquinas, searching for the truth through examination
 of ultimate reality as it was revealed in history. Long ago, he left the church in the formal 
 sense. Spiritually and intellectually he never left it. He never swerved from his search for 
 the meaning of life. He never placed any goal in higher priority. If the God of the 
@@ -512,10 +498,7 @@ source materials for such events, especially the indispensable official document
 available and that, even with the documentation which is available, it is very difficult for 
 anyone to obtain the necessary perspective on the events of one's own mature life. But I 
 must clearly not be a sensible or, at least, an ordinary historian, for, having covered, in an 
-earlier book, the whole of human history in a mere 271 pages, I now use more than 1300 
-
-
-
+earlier book, the whole of human history in a mere 271 pages, I now use more than 1300
 pages for the events of a single lifetime. There is a connection here. It will be evident to 
 any attentive reader that I have devoted long years of study and much original research, 
 even where adequate documentation is not available, but it should be equally evident that 
@@ -561,8 +544,6 @@ to project the tendencies of the past into the present and even the future and m
 give this attempt a more solid basis by using all the evidence from a wide variety of 
 academic disciplines. 
 
-
-
 As a consequence of these efforts to use this broad, and perhaps complex, method, this 
 book is almost inexcusably lengthy. For this I must apologize, with the excuse that I did 
 not have time to make it shorter and that an admittedly tentative and interpretative work 
@@ -607,8 +588,6 @@ my editor at The Macmillan Company, Peter V. Ritner.
 
 I wish to express my gratitude to the University Grants Committee of Georgetown 
 University, which twice provided funds for summer research. 
-
-
 
 And, finally, I must say a word of thanks to my students over many years who forced 
 me to keep up with the rapidly changing customs and outlook of our young people and 
@@ -656,10 +635,7 @@ becomes stabilized and eventually stagnant. After a Golden Age of peace and pros
 internal crises again arise. At this point there appears, for the first time, a moral and 
 physical weakness which raises, also for the first time, questions about the civilization's 
 ability to defend itself against external enemies. Racked by internal struggles of a social 
-and constitutional character, weakened by loss of faith in its older ideologies and by the 
-
-
-
+and constitutional character, weakened by loss of faith in its older ideologies and by the
 challenge of newer ideas incompatible with its past nature, the civilization grows steadily 
 weaker until it is submerged by outside enemies, and eventually disappears. 
 
@@ -705,10 +681,7 @@ Spain, North Africa, and Gaul. In Canaanite Civilization (2200 B.C. -100 B.C.) t
 area was the Levant, while the peripheral area was in the western Mediterranean at Tunis, 
 western Sicily, and eastern Spain. The core area of Western Civilization (A.D. 400 to 
 some time in the future) has been the northern half of Italy, France, the extreme western 
-part of Germany, and England; the semi-peripheral area has been central, eastern, and 
-
-
-
+part of Germany, and England; the semi-peripheral area has been central, eastern, and
 southern Europe and the Iberian peninsula, while the peripheral areas have included 
 North and South America, Australia, New Zealand, South Africa, and some other areas. 
 
@@ -754,10 +727,7 @@ In most civilizations the long-drawn agony of the Age of Conflict finally ends i
 new period, the Age of the Universal Empire. As a result of the imperialist wars of the 
 Age of Conflict, the number of political units in the civilization are reduced by conquest. 
 Eventually one emerges triumphant. When this occurs we have one political unit for the 
-whole civilization. Just at the core area passes from the Age of Expansion to the Age of 
-
-
-
+whole civilization. Just at the core area passes from the Age of Expansion to the Age of
 Conflict earlier than the peripheral areas, sometimes the core area is conquered by a 
 single state before the whole civilization is conquered by the Universal Empire. When 
 this occurs the core empire is generally a semi-peripheral state, while the Universal 
@@ -801,9 +771,7 @@ Empire in the period 1300-1600 and has been in the process of being destroyed by
 invaders from Western Civilization since about 1750. 
 
 Expressed in this way, these patterns in the life cycles of various civilizations may 
-seem confused. But if we tabulate them, the pattern emerges with some simplicity. 
-
-
+seem confused. But if we tabulate them, the pattern emerges with some simplicity.
 
 From this table a most extraordinary fact emerges. Of approximately twenty 
 civilizations which have existed in all of human history, we have listed sixteen. Of these 
